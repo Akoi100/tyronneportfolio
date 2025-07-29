@@ -13,7 +13,7 @@ My objective is to secure a dynamic role as a computer professional, where I can
 - Kenya Certificate of Secondary Education (KCSE), St. Mary's School, Yala (2016 - 2019) - Scored a Mean Grade of B+ (68 points)
 - Kenya Certificate of Primary Education (KCPE), ACK St. Paul's Academy, Athiriver (2011 - 2015) - Scored 386 marks (a Mean Grade of A-)
 
-[Download My CV](D'vock Akoi_CV.pdf)
+[Download My CV](Dvock Akoi_CV.pdf)
 
 ## Programming Languages
 
