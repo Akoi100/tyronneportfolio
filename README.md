@@ -1,4 +1,4 @@
-# D'vock Tyrone Akoi - Portfolio
+# D'vock Tyronne Akoi - Portfolio
 
 Welcome to my personal portfolio website! This portfolio showcases my skills, background, and achievements.
 
